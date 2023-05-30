@@ -12,19 +12,19 @@ My calendar is open to you. I keep my calendar up to date with the exception of 
 
 My schedule 🗓
 
-You can Slack me 24 hours a day and I will respond as quickly as possible. I have more of a work/life mesh, so I like to think of it as a mesh of both worlds. I'm an early morning person. I like to pop my laptop open early and try to close my laptop around 3pm CST for family time. Please know that I am still available if you need anything. If I Slack you outside of your working hours I don't expect you to reply, unless there is some emergency(this is rare!).
+You can Slack me 24 hours a day and I will respond as quickly as possible. I have more of a work/life mesh, so I like to think of it as a mesh of both worlds. I'm an early morning person. I like to pop my laptop open early and focus on deep work. If I Slack you outside of your working hours I don't expect you to reply, unless there is some emergency (this is rare!).
 
 I will take vacations and personal days and you should too! Being disconnected from work allows me to recharge and come back refreshed so I can do my best work! 
 
 1:1s 🎉
 
-I’m a big fan of 1:1s. These meetings are for you to set the agenda. What do you want to chat about? Let’s talk about things that are going well for you. Is there something bugging you? Anything that you would like to chat about is fair game. If it’s nice outside, I love to walk outside while we chat. While video chatting is ideal, please let me know if you’d like to meet with cameras off. Ideally, I'd like to schedule a minimum of 30 minutes with you every other week, but the length, frequency and medium should be based on your needs. This is only a suggested minimum, not a maximum. If we need to talk about a specific project, we will do this in a separate meeting to ensure your 1:1s are your time and agenda!
+I’m a big fan of 1:1s. These meetings are for you to set the agenda. What do you want to chat about? Let’s talk about things that are going well, thing that aren't going well, areas of opportunity, etc. Anything that you would like to chat about is fair game. If it’s nice outside, I love to walk outside while we chat. While video chatting is ideal, please let me know if you’d like to meet with cameras off. Ideally, I'd like to schedule a minimum of 30 minutes with you every other week, but the length, frequency and medium should be based on your needs. This is only a suggested minimum, not a maximum. If we need to talk about a specific project, we will do this in a separate meeting to ensure your 1:1s are your time and agenda!
 
 My Expectations
 
 The Ultimate Team Player 🙌🏽
 
-As a team we should have each other’s backs, hold each other accountable, assume positive intent, always ask questions, constantly learn, and laugh together. I expect you to operate as a Directly Responsible Individual. You were hired because you have the experience, drive, and skills! I am not here to tell you how to do your job. My role is to help you succeed, not to tell you how you should act. I expect you to be a thoughtful and empathetic human with your teammates. I’m here to provide you with guidance and when you need help I expect you to ask for it. You are going to make mistakes and that’s great, own it, learn from it and let’s move forward. I am flexible with you and your time. I do expect that you are producing work that is high quality and that you are supporting your fellow team members.
+As a team we should have each other’s backs, hold each other accountable, assume positive intent, always ask questions, constantly learn, and laugh together. I expect you to operate as a Directly Responsible Individual. You were hired because you have the experience, drive, and skills! I am not here to tell you how to do your job. My role is to help you succeed, not to tell you how you should act. I expect you to be a thoughtful and empathetic human with your teammates. I’m here to provide you with guidance and when you need help I expect you to ask for it. You are going to make mistakes and that’s great, own it, learn from it, and let’s move forward. I am flexible with you and your time. I do expect that you are producing work that is high quality and that you are supporting your fellow team members.
 
 Meetings 🎙
 
